@@ -1,4 +1,3 @@
-# githubfolio
 
 
 ## 🌐 Socials:
